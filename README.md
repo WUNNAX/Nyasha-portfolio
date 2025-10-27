@@ -2,7 +2,10 @@
 
 **Code with passion, create with heart, and connect with the world.** 💬❤️
 
-📍 Cape Town, Western Cape | 📧 justdigitalcpt@gmail.com | 📱 +27 68 315 8360
+📍 Cape Town, Western Cape |
+📍 Harare Zimbabwe 
+📧 justdigitalcpt@gmail.com | 📱 +27 68 315 8360
++263 777 199 193
 
 ## 🚀 About Me
 
